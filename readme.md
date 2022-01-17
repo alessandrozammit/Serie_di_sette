@@ -1,2 +1,2 @@
-###Serie di sette
+Serie di sette
 poi la descrivo
